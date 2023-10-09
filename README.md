@@ -1,2 +1,0 @@
-# carlsonlab
-About us!
